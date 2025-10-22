@@ -1,0 +1,1 @@
+# Yetzyow-Japan-Trademark-Declaration
